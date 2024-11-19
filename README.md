@@ -1,10 +1,10 @@
 Gladyatör II — Türkçe Dublaj ve Altyazılı İzle (1080p) Gladyatör II (2024) İzle - Filmi Full HD (1080p) izle Gladyatör II — (2024) Türkçe Dublaj ve Altyazılı İzle (1080p)
 
-<b><i><h3> <a href="http://dmovie.fun/en/movie/558449/gladiator-iiend-gitlin" rel="nofollow">Filmi Buradan İzleyin ▶▶ Gladyatör II izle (2024) | Türkçe Dublaj & Altyazılı (1080p)</a></b></i></h>
+<b><i><h3> <a href="https://dmov.fun/tr/movie/558449/gladiator-iiend-gitlin" rel="nofollow">Filmi Buradan İzleyin ▶▶ Gladyatör II izle (2024) | Türkçe Dublaj & Altyazılı (1080p)</a></b></i></h>
 
-<b><i><h3> <a href="http://dmovie.fun/en/movie/558449/gladiator-iiend-gitlin" rel="nofollow">Izle Simdi 🔴✅➤➤ Gladyatör II izle (2024) | Türkçe Dublaj & Altyazılı (1080p)</a></b></i></h>
+<b><i><h3> <a href="https://dmov.fun/tr/movie/558449/gladiator-iiend-gitlin" rel="nofollow">Izle Simdi 🔴✅➤➤ Gladyatör II izle (2024) | Türkçe Dublaj & Altyazılı (1080p)</a></b></i></h>
 
-<a href="http://dmovie.fun/en/movie/558449/gladiator-iiend-gitlin" rel="nofollow"><img src="https://camo.githubusercontent.com/917e6ed5c302499242165dcc02bdbce85c075fd21b35918eb9c0b771855261b8/68747470733a2f2f7374617469632e7769787374617469632e636f6d2f6d656469612f6232343966395f61646163386637306662336634356238383639313639366337376465313866337e6d76322e676966" alt="Foo" style="max-width: 100%;"></a>
+<a href="https://dmov.fun/tr/movie/558449/gladiator-iiend-gitlin" rel="nofollow"><img src="https://camo.githubusercontent.com/917e6ed5c302499242165dcc02bdbce85c075fd21b35918eb9c0b771855261b8/68747470733a2f2f7374617469632e7769787374617469632e636f6d2f6d656469612f6232343966395f61646163386637306662336634356238383639313639366337376465313866337e6d76322e676966" alt="Foo" style="max-width: 100%;"></a>
 
 Gladyatör II'un kaotik yaşamı, beklenmedik bir şeye yer açmak için ani bir değişim geçiriyor: Gladyatör II'in dönüşü! Uzun zamandır kendi bildiği yöntemlerle mücadele eden Gladyatör II, Gladyatör II ortaya çıktığında nasıl hissedeceğinden emin değil.
 
